@@ -1,0 +1,92 @@
+# Limp Bizkit – フル・ネルソン
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+why is everybody
+always picking on me
+why is everybody
+always picking on me
+does anybody really
+know a thing about me
+does anybody really
+know a thing about me
+one of these days we'll
+be in the same place
+and the same place punk
+at the very same time
+and when it takes it
+place and you wanna talk shit
+then step your ass up
+and say it right to my face
+you'll get knock the fuck out
+cause your mouth's writing
+checks that your ass can't cash
+knocked straight the fuck out
+cause your mouth's writing
+checks that your ass can't cash
+i ain't believing all this
+shit you've talking about me
+don't even know me and still
+your talking shit about me
+don't even know me and still
+your talking shit about me
+one of these day
+i'm'a catch you in the act
+in the act
+red handed caught up
+in the act punk
+now that'll be the day
+the one and only day
+so step your ass up
+and say it right to my face
+you'll get knock the fuck out
+cause your mouth's
+writing checks
+that your ass can't cash
+knocked straight the fuck out
+cause your mouth's
+writing checks
+that your ass can't cash
+so where you at
+where you've been
+sure in i was in
+cause this world's
+really stuck
+can we all get along
+so where you at
+where you've been
+sure in i was in
+cause this world's
+really stuck
+can we all
+get along
+how pathetic are peoples
+who purposly rape
+us with talking
+we try to ignore them
+ignore them until
+they keep talking
+they think that they're good
+cheap liers
+without us
+we've got the fortunates ones
+we got the fire to burn this
+mother fucker down down down
+burn this mother fucker down
+down down
+burn this mother fucker down
+down dowwwwwwn
+burn this mother fucker down
+dowwwwwwn
+burn this mother fucker
+you'll get knock the fuck out
+cause your mouth's
+writing checks
+that your ass can't cash
+knocked straight the fuck out
+cause your mouth's
+writing checks
+that your ass can't cash
+that your ass can't cash
+```
