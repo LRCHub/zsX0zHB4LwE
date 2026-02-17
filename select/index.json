@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "フル・ネルソン",
+  "base_artist": "Limp Bizkit",
+  "createdAt": "2026-02-17T14:22:33.970775Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Full Nelson",
+      "artist": "Limp Bizkit",
+      "has_synced": false,
+      "path": "select/pl_01_Full_Nelson_Limp_Bizkit.txt"
+    }
+  ]
+}
